@@ -126,8 +126,9 @@ MySQL • PostgreSQL • SQLite
 
 <div align="center">
 
-[Instagram](https://instagram.com/____brahman____1209) • 
-[GitHub](https://github.com/Saurav-study)
+[Instagram](https://www.instagram.com/ayush.kumarr._/) • 
+[GitHub](https://github.com/ayushff1515-sketch) • 
+[LinkedIn](www.linkedin.com/in/ayush-kumar-12425a340)
 
 </div>
 
